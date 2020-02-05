@@ -6,5 +6,5 @@ Have fun with pranking your friends.
 
 
 Caution: This Malware is not from me.
-I´m not teh creator.
+I´m not the creator.
 All rights go to the official creator.
